@@ -1,7 +1,7 @@
 # SECURITY
 Security Stuffs Only Lulz
 
-"Dunia yang bobrok di mana inti sari makna hacker hanya seperti seorang perusak. Ironis ! Mungkinkah suatu hari nanti ada hacker beneran seperti tesla dan edison. Seorang ahli teknologi yang menciptakan revolusi besar"
+Dunia yang bobrok di mana inti sari makna hacker hanya seperti seorang perusak. Mungkinkah suatu hari nanti ada hacker beneran seperti tesla. Seorang ahli teknologi yang menciptakan revolusi besar
 
 Who am I ?
 
