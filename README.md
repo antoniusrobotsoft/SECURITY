@@ -3,7 +3,7 @@ Security Stuffs Only Lulz
 
 "Dunia yang bobrok di mana inti sari makna hacker hanya seperti seorang perusak. Mungkinkah suatu hari nanti ada hacker beneran seperti tesla. Seorang ahli teknologi yang menciptakan revolusi besar"
 
-"Burung burung yang bulunya seragam akan berkumpul bersama sama, burung yang bulunya berbeda sendiri akan terbang sendiri di langit, terus terbang melesat seperti elang"
+"Burung burung yang bulunya seragam akan berkumpul bersama sama, burung yang bulunya berbeda sendiri bisa terbang bebas sendiri di langit, terus naik melesat tinggi seperti rajawali raja di angkasa"
 
 Who am I ?
 
