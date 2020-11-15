@@ -1,5 +1,5 @@
 # SECURITY
-Security Stuffs Only Lulz
+
 
 "Mengurangi reinvent the wheel" 
 Mengurangi kegiatan membuat teknologi yang sudah pernah ada, untuk efisiensi waktu. Gunakan waktu lebih banyak untuk eksperimen inovasi teknologi yang belum pernah ada dan bermanfaat untuk banyak orang atau teknologi yang sudah pernah ada tapi ditingkatkan menjadi lebih baik.
