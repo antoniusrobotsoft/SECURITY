@@ -16,4 +16,4 @@ Apakah tujuan sejati seorang ilmuwan teknologi / ahli teknologi ?
 2. Bagaimana agar inovasi Anda itu suatu saat bisa untuk memuliakan Sang Pencipta. 
 3. Miliki tujuan yang murni tanpa keinginan balas dendam, tanpa egoisme pribadi, tanpa ketamakan dan keserakahan akan harta, tujuan yang murni untuk umat manusia dan Tuhan
 
-Untuk apa membuat sejarah tapi seumur hidup Anda tidak pernah menciptakan inovasi apapun yang bermanfaat untuk umat manusia ?"
+Untuk apa membuat sejarah tapi seumur hidup Anda tidak pernah menciptakan inovasi apapun yang bermanfaat untuk umat manusia ?
