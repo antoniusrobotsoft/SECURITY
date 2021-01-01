@@ -1,3 +1,6 @@
+<img src="https://github.com/antoniusrobotsoft/SECURITY/blob/main/assets/x.jpg?raw=true">
+
+
 "Predicting the future, Calculating everything"
 
 "Mengurangi reinvent the wheel" 
