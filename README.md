@@ -1,8 +1,6 @@
 <img src="https://github.com/antoniusrobotsoft/SECURITY/blob/main/assets/x.jpg?raw=true">
 
-
-"segala pencemaran nama baik di internet, buli, troll atau segala aktivitas lainya ke depanya akan kami gunakan jalur hukum"
-
+"segala pencemaran nama baik di internet, buli, troll atau segala aktivitas merugikan lainya ke depanya akan kami gunakan jalur hukum"
 
 
 "Predicting the future, Calculating everything"
